@@ -34,7 +34,7 @@
 ## 📫 Как со мной связаться
 
 *   **Email:** [flexagon3@rambler.ru](mailto:flexagon3@rambler.ru)
-*   **Telegram:** [@not_udav](https://t.me/@not_udav)
+*   **Telegram:** [@not_udav](https://t.me/not_udav/)
 
 ---
 ⚡ *Успех неизбежен*
